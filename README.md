@@ -11,8 +11,6 @@
 
 - 🤝 I’m looking for help with **ML**
 
-- 💬 Ask me about **priyanshugse@gmail.com**
-
 - 📫 How to reach me **priyanshugse@gmail.com**
 
 - ⚡ Fun fact **i am create insta reels**
